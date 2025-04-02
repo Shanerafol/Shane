@@ -1,1 +1,1 @@
-# MUnicipality of Mahayag
+# Municipality of Mahayag
